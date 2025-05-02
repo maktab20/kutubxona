@@ -1,0 +1,2 @@
+# kutubxona
+maktab
